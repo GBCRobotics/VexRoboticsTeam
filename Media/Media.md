@@ -1,0 +1,1 @@
+Place for photos and videos from club meetings and outings
